@@ -8,7 +8,7 @@ I pray to it every day, I say it every day, and of course I spam it every day.
 2. h
 31. otuzbir funny
 
-## I am running out of unfunny ideas to put here so I'm gonna put here even more unfunny stuff (it's not really bad and maybe not unfunny but like I have no ideas what to do)
+## I am running out of unfunny ideas to put here so I'm gonna put here even more unfunny stuff (it's not really bad and maybe not unfunny but like I have no ideas what to do and I want a """proffesional""" looking description something idk)
 ##### Aden is an adult who lives in his own house.
 ##### otuzbir
 ##### 31
